@@ -7,4 +7,4 @@ Get Rainway: https://rainway.tv/download/
 
 Website: https://rainway.tv/
 
-2022 © All Right Reserved.
+2022 © All Rights Reserved.
